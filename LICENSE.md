@@ -1,4 +1,4 @@
-# 
+# ذكي IObit Uninstaller إضافات لـ Mac OS | خفيف IObit Uninstaller إضافات لـ PC Windows. مع نظام الإشعارات و مسح الذاكرة المؤقتة — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
